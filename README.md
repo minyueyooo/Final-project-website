@@ -1,2 +1,2 @@
-# Final-project-website
+# minyueyooo.github.io
 minyueyooo.github.io
